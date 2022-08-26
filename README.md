@@ -7,6 +7,10 @@
 # [fuwa mason edit](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
 ![screenshot159](https://user-images.githubusercontent.com/45651767/184427644-9620fb46-fde6-4662-a65c-d6ff1f02b9fb.jpg)
 
+# [mason ayla edit](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
+![screenshot178](https://user-images.githubusercontent.com/45651767/186880385-2c67883d-d6e5-4861-8489-c8dbc181a6cc.jpg)
+
+
 # [mason kantoku](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
 ![screenshot160](https://user-images.githubusercontent.com/45651767/184428310-a135edb4-a5ae-4abe-b10b-eabeffe3b5f9.jpg)
 
