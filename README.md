@@ -31,10 +31,10 @@
 # [rainbow](https://kimika.s-ul.eu/5SpDpaqG)
 ![screenshot166](https://user-images.githubusercontent.com/45651767/184430755-63a342b9-27e4-4e7c-9e9c-4e5e7f6f9fe5.jpg)
 
-# [mason♡ Instafade](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
+# [mason♡ Instafade](https://kimika.s-ul.eu/Gm2ulYk4)
 ![screenshot167](https://user-images.githubusercontent.com/45651767/184431725-c8b5551a-bd58-4253-aa95-0c6db77feff7.jpg)
 
-# [mason♡ Old](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
+# [mason♡ Old](https://kimika.s-ul.eu/TB6PcdfU)
 ![screenshot168](https://user-images.githubusercontent.com/45651767/184431787-f328faa5-1209-42a5-9d39-57eb578cd9f8.jpg)
 
 # [mason♡ Hidden](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
