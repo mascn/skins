@@ -25,10 +25,10 @@
 # [- PENDUAL - edit](https://kimika.s-ul.eu/ZJId5UTJ) | [Preview](https://www.youtube.com/watch?v=A2IUUuXJf_Q)
 ![screenshot163](https://user-images.githubusercontent.com/45651767/184429796-fc43438f-64f4-44c6-ba57-b7eb4262518a.jpg)
 
-# [natori skin hp fix](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
+# [natori skin hp fix](https://kimika.s-ul.eu/O66P5suJ)
 ![screenshot164](https://user-images.githubusercontent.com/45651767/184430106-b55887b3-3eed-4bc3-821b-3966b3141a9e.jpg)
 
-# [rainbow](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
+# [rainbow](https://kimika.s-ul.eu/5SpDpaqG)
 ![screenshot166](https://user-images.githubusercontent.com/45651767/184430755-63a342b9-27e4-4e7c-9e9c-4e5e7f6f9fe5.jpg)
 
 # [mason♡ Instafade](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
