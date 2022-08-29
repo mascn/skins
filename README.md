@@ -1,10 +1,10 @@
 # my skins (original/edits) no links r right atm dont click anything!!!! AHH D:
 ## dg#6542
 
-# [karcher mason edit](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg) | [Preview](https://youtu.be/fzpFL5KGWvw)
+# [karcher mason edit](https://kimika.s-ul.eu/6ANxa8Gc) | [Preview](https://youtu.be/fzpFL5KGWvw)
 ![screenshot158](https://user-images.githubusercontent.com/45651767/184427001-3982ceab-4585-4525-8a62-2de6a5e76cae.jpg)
 
-# [fuwa mason edit](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
+# [fuwa mason edit](https://kimika.s-ul.eu/fuQqvkiP)
 ![screenshot159](https://user-images.githubusercontent.com/45651767/184427644-9620fb46-fde6-4662-a65c-d6ff1f02b9fb.jpg)
 
 # [mason ayla edit](link) | ask
