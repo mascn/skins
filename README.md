@@ -7,10 +7,10 @@
 # [fuwa mason edit](https://kimika.s-ul.eu/fuQqvkiP)
 ![screenshot159](https://user-images.githubusercontent.com/45651767/184427644-9620fb46-fde6-4662-a65c-d6ff1f02b9fb.jpg)
 
-# mason ayla edit | ask
+# mason ayla edit | ask me
 ![screenshot178](https://user-images.githubusercontent.com/45651767/186880385-2c67883d-d6e5-4861-8489-c8dbc181a6cc.jpg)
 
-# mason Hmmm | ask
+# mason Hmmm | ask me
 ![screenshot183](https://user-images.githubusercontent.com/45651767/187163058-7d07e848-4deb-429a-abf7-5c87b9e00847.jpg)
 
 # [mason kantoku](https://kimika.s-ul.eu/MO7kXknd)
@@ -55,10 +55,10 @@
 # [sasakure kimika](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
 ![screenshot175](https://user-images.githubusercontent.com/45651767/184435057-ab74c149-89d6-40a4-93b9-574f84f98fd9.jpg)
 
-# mason's subahibi (shield ver.) | ask
+# mason's subahibi (shield ver.) | ask me
 ![screenshot176](https://user-images.githubusercontent.com/45651767/184435462-e01d11fc-69f0-4a55-a4f8-8ee47c1722d2.jpg)
 
-# mason's subahibi (toke) | ask
+# mason's subahibi (toke) | ask me
 ![screenshot177](https://user-images.githubusercontent.com/45651767/184436104-9a10024d-9bd8-47e8-bc89-52546fee566a.jpg)
 
 
