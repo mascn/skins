@@ -13,16 +13,16 @@
 # [mason Hmmm](link) | ask
 ![screenshot183](https://user-images.githubusercontent.com/45651767/187163058-7d07e848-4deb-429a-abf7-5c87b9e00847.jpg)
 
-# [mason kantoku](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
+# [mason kantoku](https://kimika.s-ul.eu/MO7kXknd)
 ![screenshot160](https://user-images.githubusercontent.com/45651767/184428310-a135edb4-a5ae-4abe-b10b-eabeffe3b5f9.jpg)
 
 # [sunyata v3](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
 ![screenshot161](https://user-images.githubusercontent.com/45651767/184428972-f2d0dbf3-13d2-4c5e-96f9-e54095920e76.jpg)
 
-# [stellabee unnamed edit](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
+# [stellabee unnamed edit](https://kimika.s-ul.eu/pAaB3CZk)
 ![screenshot162](https://user-images.githubusercontent.com/45651767/184429448-cc0bcd0a-1add-42b9-8d59-4ddcfd1ae2da.jpg)
 
-# [- PENDUAL - edit](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg) | [Preview](https://www.youtube.com/watch?v=A2IUUuXJf_Q)
+# [- PENDUAL - edit](https://kimika.s-ul.eu/ZJId5UTJ) | [Preview](https://www.youtube.com/watch?v=A2IUUuXJf_Q)
 ![screenshot163](https://user-images.githubusercontent.com/45651767/184429796-fc43438f-64f4-44c6-ba57-b7eb4262518a.jpg)
 
 # [natori skin hp fix](https://mega.nz/file/ZRRSRbRQ#6nizOmfFk50YodKtBH9EZ9QXVUG6EDdnbnjjEvyOfXg)
