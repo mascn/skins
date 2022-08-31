@@ -19,9 +19,6 @@
 # [mason kantoku](https://kimika.s-ul.eu/MO7kXknd)
 ![screenshot160](https://user-images.githubusercontent.com/45651767/184428310-a135edb4-a5ae-4abe-b10b-eabeffe3b5f9.jpg)
 
-# [sunyata v3](link) | not uploaded yet
-![screenshot161](https://user-images.githubusercontent.com/45651767/184428972-f2d0dbf3-13d2-4c5e-96f9-e54095920e76.jpg)
-
 # [stellabee unnamed edit](https://kimika.s-ul.eu/pAaB3CZk)
 ![screenshot162](https://user-images.githubusercontent.com/45651767/184429448-cc0bcd0a-1add-42b9-8d59-4ddcfd1ae2da.jpg)
 
