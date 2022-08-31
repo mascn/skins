@@ -46,9 +46,6 @@
 # [mason x cinnamoroll](link) | not uploaded yet
 ![screenshot171](https://user-images.githubusercontent.com/45651767/184432905-c17ea078-d74c-40ec-a455-667f76ed5683.jpg)
 
-# [mason x cinnamoroll v2](link) | not uploaded yet
-![screenshot172](https://user-images.githubusercontent.com/45651767/184433189-af0e228b-bd7c-4581-91f8-c1cad31e252b.jpg)
-
 # [yugen darkside if](https://kimika.s-ul.eu/7OscaYw4)
 ![screenshot173](https://user-images.githubusercontent.com/45651767/184433655-ae3a1ad0-d9ab-4fd1-9b1c-cb595596071b.jpg)
 
